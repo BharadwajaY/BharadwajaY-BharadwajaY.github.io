@@ -1,3 +1,3 @@
 # BharadwajaY-BharadwajaY.github.io
 Bio Data
-https://BharadwajaY.github.io
+https://bharadwajay.github.io/BharadwajaY-BharadwajaY.github.io/
